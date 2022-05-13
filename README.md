@@ -1,2 +1,2 @@
-# cheat
-have a kiding with your friend
+# 我是那個...
+你懂ㄉ
